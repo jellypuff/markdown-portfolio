@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+A Few of My Favorite Foods:
+* Mangosteen
+* Dumplings
+* Mashed Potato
+* Pears
+* Kumara Crisps
